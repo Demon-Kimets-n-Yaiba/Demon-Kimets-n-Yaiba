@@ -2,9 +2,9 @@
 
 ** LAST UPDATED : MARCH 7, 2024 **
 
-CLICK HERE TO ᗯᗩTᑕᕼ MOVIE
+[CLICK HERE TO ᗯᗩTᑕᕼ MOVIE](https://clubmovie4k.net/movie/1216221/demon-slayer-kimetsu-no-yaiba-to-the-hashira-training.html)
 
-CLICK HERE TO ᗪOᗯᑎᒪOᗩᗪ MOVIE
+[CLICK HERE TO ᗪOᗯᑎᒪOᗩᗪ MOVIE](https://clubmovie4k.net/movie/1216221/demon-slayer-kimetsu-no-yaiba-to-the-hashira-training.html)
 
 This movie is one of the best in its genre. Demon Slayer Kimetsu no Yaiba To the Hashira Training will be available to watch
 
